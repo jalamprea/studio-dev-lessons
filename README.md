@@ -1,1 +1,1 @@
-## Ejercicio clase 1
+## Excercise lesson 1
